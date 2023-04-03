@@ -7,10 +7,8 @@ How to reach me: wlodarski.michal@pm.me
 
 Fun fact: 
 
-I really like long, exhausing walks in wild. 
+I really like long, exhausing walks in mountains. 
 
 I lived abroad for 8 years. 
 
 After 5th coffee I see world in slow-mo.
-
-Have a nice day!
